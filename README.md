@@ -1,1 +1,0 @@
-# main-infosumbar.my.id
